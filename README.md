@@ -2,7 +2,7 @@
 
 PSE em Ação – Sistema de Planejamento e Acompanhamento de Ações de Saúde na Escola
 
-LINK DO DRIVE CASO O PDF DÊ ERRO NO GITHUB: https://drive.google.com/file/d/1074rj-oKI1vTU_n214ucwP7MftLGiBqj/view?usp=sharing
+LINK DO DRIVE CASO O PDF DÊ ERRO NO GITHUB: https://drive.google.com/drive/folders/1JtjpO0X4gyWSOLyB7XEMRTWid5kBineO?usp=sharing
 
 Sobre o Projeto:
 
